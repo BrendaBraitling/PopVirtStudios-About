@@ -6,10 +6,10 @@ PopVirt Studios was established in 2020 by Pondering Press, a Specialty Publishe
 The mission of Pondering Press is to share packaged Learning Opportunities that are
     Learner Centered, 
     Authentic,
-    Project Based, and
+    Project Based - Portfolio Driven and
     Accessible.
-
-Founded in 2016, Pondering Press, Inc is a micro-publishing house dedicated to helping people learn by providing customized contract services to trainers and educators.  
+    
+Founded in 2016, Pondering Press, Inc is a micro-publishing house dedicated to helping people learn by providing customized contract services to trainers and educators.  In 2020, Pondering Press, Inc became a registered federal 8a small business entity, capabe of responding to governmental and other bids or requests.
 
 From 2017 to 2019, the Founder and Chief Editor of Pondering Press participated in the research and development of a new kind of learning engagement system, with Imagine-Invent-Create LLC, called HALS, the Hands-on Active Learning System.  HALSMed was a prototype system that provided a proof of concept that important healthcare problems, like hospital acquired infections, could be tackled by providing authentic learning opportunities on demand.  It was demonstrated at the 2018 American Vascular Association Convention in Ohio by I-I-C and presented as a poster at the NDIA/NTSA iFEST 2019 in Arlington Virginia by Pondering Press and I-I-C.
 
